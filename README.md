@@ -2,7 +2,7 @@
 
 Learn to live the life by enjoying each and every moment.
 
-All is Well when you do wel!
+All is Well when you do well!
 
 
 Thanks!
